@@ -1,1 +1,1 @@
-amo cachorros,harry styles e me amo :sparkles::heartpulse::dog:
+amo cachorros e o harry styles :dog::two_hearts:
