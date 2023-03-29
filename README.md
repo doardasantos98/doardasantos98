@@ -1,1 +1,1 @@
-amo cachorros e o harry styles :dog::two_hearts:
+##amo o harry styles :tulip:
